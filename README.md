@@ -1,0 +1,2 @@
+# rikaiwohukameru
+そのまんま
